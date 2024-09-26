@@ -1,8 +1,7 @@
 ### Olá! Sou Larissa Rocha
 
 
-- 🔭 Hoje trabalho com HELPDESK
-- 🌱 Estudando Desenvolvimento Mobile
+- 🔭 Hoje trabalho como Desenvolvedora Pleno
 - 😄 Pronouns: Ela/Dela
 
 <div align="center">
