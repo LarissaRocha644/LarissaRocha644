@@ -2,6 +2,8 @@
 
 
 - 🔭 Hoje trabalho como Desenvolvedora Pleno
+- Desenvolvedora Full Stack | Engenheira de Requisitos | Líder Técnica
+- Links: LinkedIn - www.linkedin.com/in/larissa-rocha-568118128
 - 😄 Pronouns: Ela/Dela
 
 <div align="center">
